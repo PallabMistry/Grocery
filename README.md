@@ -18,7 +18,8 @@ HOME--
 ![7](https://user-images.githubusercontent.com/96940619/159012019-5bb7bc74-ff9f-4f45-ab75-f7163182569c.jpg)
 ![8](https://user-images.githubusercontent.com/96940619/159012025-864f668f-a201-4e05-9819-486e311a5044.jpg)
 ![9](https://user-images.githubusercontent.com/96940619/159012040-f0454af7-d1ad-44f8-844a-cf2541e4d7ec.jpg)
-![10](https://user-images.githubusercontent.com/96940619/159012053-8f7ad33b-f2ff-4fdc-aee8-36ca30d157ac.jpg)
 
 Profile--
+
+![10](https://user-images.githubusercontent.com/96940619/159012053-8f7ad33b-f2ff-4fdc-aee8-36ca30d157ac.jpg)
 ![11](https://user-images.githubusercontent.com/96940619/159012061-34fb714e-c22a-4c63-aaaf-86f080446a2c.jpg)
